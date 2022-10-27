@@ -1,2 +1,2 @@
 # practice
-practice repo
+practice repodtory in github in my account
